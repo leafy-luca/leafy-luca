@@ -1,6 +1,6 @@
 <h3>✩;. Luca; 19 ×*``;· .</h3>
 <p><b>🍃「 About me... 」🍃</b>
-<br>✩，↬ Artist 🏳️‍⚧️ 🇧🇷 ; musician;
+<br>✩，↬ Artist 🇧🇷 ; musician;
 <br>✩，↬ dev;  silly; 
 <br>✩，↬ always looking to grow and improve!
 </p>
